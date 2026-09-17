@@ -7,4 +7,4 @@
 - 💬 Ask me about MIREA
 - 📫 How to reach me: MIREA
 - 😄 Pronouns: ALEK
-- ⚡ Fun fact: MI-RE-A
+- ⚡ Fun fact: РОССИЯ ПУТИН ПОБЕДА
