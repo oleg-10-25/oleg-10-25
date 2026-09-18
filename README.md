@@ -1,4 +1,4 @@
-## Hi there, i`m OLEG
+<h1 align="center">Hi there, i`m OLEG</h1>
 
 - 🔭 I’m currently working on MIREA
 - 🌱 I’m currently learning MIREA
